@@ -2,6 +2,6 @@
 
 Kontak Saya :
 
-Email : yakubibanez@gmail.com / yakubweb@gmail.com
+E-mail : yakubibanez@gmail.com / yakubweb@gmail.com
 
 Hp : 085773717103
